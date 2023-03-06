@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @golden-gaaya-time
 - 👀 I’m interested in Cybersecurity and website development
 - 🌱 I’m currently learning Cybersecurity and software development
-- 💞️ I’m looking to collaborate on projects
+- 🫣 I’m looking to collaborate on projects
 - 📫 How to reach me gaayashan@gmail.com
 
 <!---
